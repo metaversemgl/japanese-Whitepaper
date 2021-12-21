@@ -1,2 +1,2 @@
 # japanese-Whitepaper
-Metaverse MGL is glad to announce japanese version of White Paper released
+Our team is delighted that the Japanese version of whitepaper has been released
